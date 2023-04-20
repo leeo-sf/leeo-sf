@@ -24,5 +24,5 @@
  
  ## Meios de contato
  
- - [E-mail](leonardoferreira032@gmail.com) <br>
+ - [E-mail](https://mail.google.com/mail/u/0/#inbox?compose=CllgCJZXhHDmkHqqCvxlpHtwRjtRcpdkKTJvpWZwcxNRqNbxxVzZpwjDHhSRMNxwzfckwFWgBdV) <br>
  - Celular/WhatsApp: (11) 9 7141-7941
